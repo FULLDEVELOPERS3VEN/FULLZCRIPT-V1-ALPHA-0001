@@ -4,5 +4,5 @@ Criado por:FULLZ TEAM
  
  inicio do projeto:13/março/2022
 
-quer ser da FULLZ TEAM? :FULLDEVELOPERS3VEN/Full
+quer ser da FULLZ TEAM? :https://my.forms.app/form/622eaf4217a64c6cae93e70e
  
